@@ -1,4 +1,4 @@
-# Selfie Okt.2017 in Zhuhai
+# Selfie 10.2017 在 珠海
 
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_130708.jpg?raw=true)
@@ -41,7 +41,7 @@
 
 
 
-# Who will catch me wherever I fall?
+# Who will catch me wherever I fall? :yum: :yum:
 
 
 
