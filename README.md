@@ -5,6 +5,13 @@
 ![Image](https://github.com/tsing1129/YY/blob/master/20171002_074708.jpg?raw=true)
 
 
+
+
+
+
+
+
+
 # 周五下课后学生跟我抱怨，哎~
 
 昨天听研究生说有门课的老师竟然连续让学生报告4节课，他只是中途提提问题。每次课都是如此，学生轮流报告。:sweat: :sweat:，再看看自己和其他一些老师伏案备课到凌晨，觉得人与人之间的差别还是很大的。
@@ -13,6 +20,9 @@
 
 他们有这样的言行，都是这个社会教育的产物，他们自己也是受害者。不过这样的老师应该是我们学校教师群体里的少数。
 
+
+
+# Who will catch me wherever I fall?
 
 You can use the [editor on GitHub](https://github.com/tsing1129/Yu/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
