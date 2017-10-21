@@ -7,14 +7,14 @@
 
 # The spirit is willing but the flesh is weak.
 21.10.2017  Sonnig
-- [ ] Paper abgeben __**Theory of reciprocity embedded in paper!**__
+- [ ] Paper abgeben _**Theory of reciprocity embedded in paper!**_
 - [ ] Propose hypotheses and desigh experiment based on regulatory focus theory
-- [ ] Goethe Zertifikat dabei oder nicht?? __**23.10.!!**__
+- [ ] Goethe Zertifikat dabei oder nicht?? _**23.10.!!**_
 - [ ] Creativity in Org. @ OB assistents
 - [ ] Magenspiegel?
 - [ ] Dienstreisekosten erstatten!
 - [ ] SmartPLS verlängern, kaufen
-- [ ] OSS Presentätion am Abend __**1.11.**__
+- [ ] OSS Presentätion am Abend _**1.11.**_
 - [ ] Bücher lesen: 
   * Social psychology 
   * Thinking, fast and slow
