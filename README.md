@@ -1,4 +1,9 @@
-## Welcome to GitHub Pages
+# 这样的老师，哎~
+
+昨天听研究生说有门课的老师竟然连续让学生报告4节课，他只是中途提提问题。每次课都是如此，学生轮流报告。:sweat: :sweat:，再看看自己和其他一些老师伏案备课到凌晨，觉得任何人之间的差别还是很大的。
+
+这又让我联想到之前有老师竟然公开向学校领导提建议:学校的附属中小学不应该对普通人家的孩子开放，他不想让自己的小孩和那些普通的孩子在一起读书，言下之意是要单独为大学老师的小孩开办，我当时震惊了。幸好学校领导一口回绝，“这个我们开不了口！” 我顿时舒缓了一下情绪，觉得社会还有救......:joy::joy:
+
 
 You can use the [editor on GitHub](https://github.com/tsing1129/Yu/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
