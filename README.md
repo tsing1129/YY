@@ -1,7 +1,9 @@
 # Selfie Okt.2017 in Zhuhai
 
-![Image](src)
-
+![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg)
+![Image]
+![Image]
+![Image]
 
 
 # 周五下课后学生跟我抱怨，哎~
