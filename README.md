@@ -2,8 +2,7 @@
 
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg)
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_130708.jpg)
-![Image]
-![Image]
+![Image](https://github.com/tsing1129/YY/blob/master/20171002_074708.jpg?raw=true)
 
 
 # 周五下课后学生跟我抱怨，哎~
