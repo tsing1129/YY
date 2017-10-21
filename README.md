@@ -5,6 +5,21 @@
 ![Image](https://github.com/tsing1129/YY/blob/master/20171002_074708.jpg?raw=true)
 
 
+# The spirit is willing but the flesh is weak.
+21.10.2017  Sonnig
+-[ ] Paper abgeben __**Theory of reciprocity embedded in paper!**__
+-[ ] Propose hypotheses and desigh experiment based on regulatory focus theory
+-[ ] Goethe Zertifikat dabei oder nicht?? __**23.10.!!**__
+-[ ] creativity in Org. @ teaching assistents
+-[ ] Magenspiegel?
+-[ ] Dienstreisekosten erstatten!
+-[ ] SmartPLS verlängern, kaufen
+-[ ] OSS Presentätion am Abend __**1.11.**__
+-[ ] Bücher lesen: 
+  * Social psychology 
+  * Thinking, fast and slow
+-[ ] Go??  
+
 
 
 
