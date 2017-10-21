@@ -10,7 +10,7 @@
 - [ ] Paper abgeben __**Theory of reciprocity embedded in paper!**__
 - [ ] Propose hypotheses and desigh experiment based on regulatory focus theory
 - [ ] Goethe Zertifikat dabei oder nicht?? __**23.10.!!**__
-- [ ] creativity in Org. @ teaching assistents
+- [ ] Creativity in Org. @ OB assistents
 - [ ] Magenspiegel?
 - [ ] Dienstreisekosten erstatten!
 - [ ] SmartPLS verlängern, kaufen
@@ -21,6 +21,10 @@
 - [ ] Go??  
 
 
+# 我 vs.周围其他人，究竟谁出了问题？？
+## 皇帝的新衣
+为什么我周围的所有人在一些事情上的行为体现了高度的一致性：畏首畏尾，口是心非，表里不一，虚情假意？平时和他们的交谈，觉得他们不是这样的。
+而我就是做不到！与价值观不一致的东西，没法学会啊！痛苦死了，这个世界到底要不要去适应！:scream: :scream:
 
 
 
