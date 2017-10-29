@@ -1,6 +1,6 @@
 # 10.2017 在 珠海
 
-![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true) ![Image](https://github.com/tsing1129/YY/blob/master/20171005_130708.jpg?raw=true) ![Image](https://github.com/tsing1129/YY/blob/master/20171002_074708.jpg?raw=true)
+![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true) ![Image](https://github.com/tsing1129/YY/blob/master/20171002_074708.jpg?raw=true)
 
 
 # The spirit is willing but the flesh is weak.
