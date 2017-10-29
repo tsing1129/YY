@@ -8,15 +8,15 @@
 - [ ] Paper abgeben _**Theory of reciprocity embedded in paper!**_
 - [ ] Propose hypotheses and desigh experiment based on regulatory focus theory
 - [ ] Goethe Zertifikat dabei oder nicht?? _**23.10.!!**_
-- [ ] Creativity in Org. @ OB assistents
+- [x] Creativity in Org. @ OB assistents
 - [ ] Magenspiegel?
 - [ ] Dienstreisekosten erstatten!
-- [ ] SmartPLS verlängern, kaufen
+- [x] SmartPLS verlängern, kaufen
 - [ ] OSS Presentätion am Abend _**1.11.**_
 - [ ] Bücher lesen: 
   * Social psychology 
   * Thinking, fast and slow
-- [ ] Go??  
+- [x] Go??  
 
 
 # 我 vs.周围其他人，究竟谁出了问题？？
