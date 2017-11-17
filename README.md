@@ -1,3 +1,5 @@
+#我感到上天在把我一步步的逼向绝境，为什么要这样对我呢？我就快走投无路了。这样真的好吗。
+
 # 10.2017 在 珠海
 
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
@@ -6,16 +8,23 @@
 21.10.2017  Sonnig
 - [ ] Paper abgeben _**Theory of reciprocity embedded in paper!**_
 - [ ] Propose hypotheses and desigh experiment based on regulatory focus theory
-- [ ] Goethe Zertifikat dabei oder nicht?? _**23.10.!!**_
+- [x] Goethe Zertifikat dabei oder nicht?? _**23.10.!!**_
 - [x] Creativity in Org. @ OB assistents
 - [ ] Magenspiegel?
-- [ ] Dienstreisekosten erstatten!
+- [x] Dienstreisekosten erstatten!
 - [x] SmartPLS verlängern, kaufen
-- [ ] OSS Presentätion am Abend _**1.11.**_
+- [x] OSS Presentätion am Abend _**1.11.**_
 - [ ] Bücher lesen: 
   * Social psychology 
   * Thinking, fast and slow
 - [x] Go??  
+- [ ] OB workshop paper lesen
+- [ ] CLDS data in SmartPLS einsetzen, Besprechung Feng
+- [ ] Besprechung Dai
+
+
+
+
 
 
 # 我 vs.周围其他人，究竟谁出了问题？？
