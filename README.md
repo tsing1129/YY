@@ -24,17 +24,3 @@
 
 If you are interested in the topics and my supervision, please send me a _**brief statement**_ of your motivation and your favored topic via tsing1129@gmail.com ASAP.
 如果你想和我完成你的毕业论文，请尽快随信附上几句话的 _**简短**_ 动机说明和你喜欢的话题。谢谢。
-
-
-
-
-
-
-
-
-
-# Who will catch me wherever I fall? :yum: :yum:
-
-
-
-
