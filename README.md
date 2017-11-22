@@ -12,7 +12,7 @@
 
 1. **Behavioral cues of ethics**
   
- Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?
+ Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?周围人的（不）道德行为会成为一种暗示，诱发你同样的行为吗？
 
 2. **Unpaid working overtime and job pressure**
    
@@ -22,8 +22,11 @@
 
 5. **The topic you are interested in**
 
-If you are interested in the topics and my supervision, please send me a __**brief statement**__ of your motivation and your favored topic via tsing1129@gmail.com ASAP.
-如果你想和我完成你的毕业论文，请尽快随信附上几句话的 __**简短**__ 动机说明和你喜欢的话题。谢谢。
+If you are interested in the topics and my supervision, please send me a _**brief statement**_ of your motivation and your favored topic via tsing1129@gmail.com ASAP.
+如果你想和我完成你的毕业论文，请尽快随信附上几句话的 _**简短**_ 动机说明和你喜欢的话题。谢谢。
+
+
+
 
 
 
