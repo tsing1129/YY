@@ -1,5 +1,5 @@
 
-# About the bachelor thesis under Yiqing's supervision 
+# About the bachelor thesis under [Yiqing](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)'s supervision 
 # 关于在[余译青](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)指导下的本科毕业论文
 
 ## Some instructions 说明 ##
@@ -12,7 +12,7 @@
 
 1. **Behavioral cues of ethics**
   
-  Can the (un)ethical behavior of people around you induce you to act in the same way?
+ Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?
 
 2. **Unpaid working overtime and job pressure**
    
