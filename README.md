@@ -10,8 +10,8 @@
 
 ## Topics 话题##
 
-1. **Behavioral cues of ethics**
-     Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?周围人的（不）道德行为会成为一种暗示，诱发你同样的行为吗？
+1. **Behavioral cues of ethics**.
+   Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?周围人的（不）道德行为会成为一种暗示，诱发你同样的行为吗？
 
 2. **Unpaid working overtime and job stress**
    
