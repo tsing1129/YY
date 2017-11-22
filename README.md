@@ -14,7 +14,7 @@
   
  Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?周围人的（不）道德行为会成为一种暗示，诱发你同样的行为吗？
 
-2. **Unpaid working overtime and job pressure**
+2. **Unpaid working overtime and job stress**
    
 3. **Social integration, social suppport and job performance and the like** 
 
