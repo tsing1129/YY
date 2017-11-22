@@ -16,7 +16,7 @@
 
 2. **Unpaid working overtime and job pressure**
    
-3. **Social integration, social suppport and job performance** 
+3. **Social integration, social suppport and job performance and the like** 
 
 4. **Party membership in the workplace**
 
