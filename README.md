@@ -1,5 +1,6 @@
 
-# About the bachelor thesis under Yiqing's supervision 关于在余译青指导下的本科毕业论文
+# About the bachelor thesis under Yiqing's supervision 
+# 关于在[余译青](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)指导下的本科毕业论文
 
 ## Some instructions 说明 ##
 
@@ -12,7 +13,6 @@
 1. **Behavioral cues of ethics**
   
   Can the (un)ethical behavior of people around you induce you to act in the same way?
-  This topic comprises several studies which relates to **literature review, field experiment and survey**. 
 
 2. **Unpaid working overtime and job pressure**
    
@@ -21,6 +21,10 @@
 4. **Party membership in the workplace**
 
 5. **The topic you are interested in**
+
+If you are interested in the topics and my supervision, please send me a __**brief statement**__ of your motivation and your favored topic via tsing1129@gmail.com ASAP.
+如果你想和我完成你的毕业论文，请尽快随信附上几句话的 __**简短**__ 动机说明和你喜欢的话题。谢谢。
+
 
 
 
