@@ -6,7 +6,7 @@
 
 1. Thesis can be either in English or Chinese. 论文中英文都可以。
 2. The topics I will supervise mainly cover  **Organizational behavior (person-related issues in firms), empirical test of theories in social psychology, and decision bias in life or workplace**. Which method you will use depends on your topic and research design, but generally does not fall outside literature review, field experiment, analysis of survey data.我将指导的话题主要涉及**组织行为学（与人直接相关的企业内问题和现象）、实证检验社会心理学理论、生活或工作中的决策偏误。** 用什么研究方法取决于话题和研究设计，但通常不会超过文献综述，实地实验，调查数据分析。
-3. Such qualifications are expected: good English reading ability, curiosity, strong motivation to figure out social phenomenon or problems.你应该具有以下能力：良好的英语阅读能力、好奇心、有动机去理论化社会现象或描述、解决社会问题。
+3. Such qualifications are expected: good English reading ability, curiosity, strong motivation to figure out social phenomenon or problems.你应该具有以下能力：良好的英语阅读能力、好奇心、有动机去描述社会现象或解决社会问题。
 
 ## Topics 话题##
 
