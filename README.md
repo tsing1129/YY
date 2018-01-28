@@ -1,6 +1,9 @@
-## 工作照出炉了，这个发型！
+## 工作照出炉了，这个发型 :weep :weep
+
+![image](https://github.com/tsing1129/YY/blob/master/YUE_0661.jpg)
 
 
+##2017.10. The spirit is willing but the flesh is weak.
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
 
 
@@ -16,7 +19,7 @@
 ## Topics 话题##
 
 1. **Behavioral cues of ethics**.
-   Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?周围人的（不）道德行为会成为一种暗示，诱发你同样的行为吗？
+   Specifically, can the (un)ethical behavior of people around you induce you to act in the same way?
 
 2. **Unpaid working overtime and job stress**
    
