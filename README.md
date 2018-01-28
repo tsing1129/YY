@@ -4,8 +4,8 @@
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
 
 
-# About the bachelor thesis under [Yiqing](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)'s supervision 
-# 关于在[余译青](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)指导下的本科毕业论文
+# About the bachelor thesis under [my](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm) supervision 
+# 关于在[我](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)指导下的本科毕业论文
 
 ## Some instructions 说明 ##
 
