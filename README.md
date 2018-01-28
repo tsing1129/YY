@@ -1,8 +1,20 @@
+## Winterferien 2018
+- [ ] festlegen:Ch. 6 一致？Ch. 8团体压力？-->propose hypo ：**现实中的信息-->intersubjective perception** 
+- [ ] 社科Antrag **26.2.gedruckter Antrag abgeben **
+- [ ] Goethe Zertifikat dabei oder nicht?? _** Shanghai: 19.Apr., 11.Jul.; Nanjing wahrscheinlich Apr.; Hongkong:30.Jun.,Anmeldung 9.Jun.**_
+- [ ] Jingwens Masterarbeit betreuen
+- [ ] Magenspiegel?
+
 ## 2018.01.工作照出炉了，这个发型 :weep: :weep:
 
 ![image](https://github.com/tsing1129/YY/blob/master/YUE_0661.jpg?raw=true)
 
 ## Who will catch me wherever I fall? :yum: :yum:
+
+# 我 vs.周围其他人，究竟谁出了问题？？
+## 皇帝的新衣
+为什么我周围的所有人在一些事情上的行为体现了高度的一致性：畏首畏尾，口是心非，表里不一，虚情假意？平时和他们的交谈，觉得他们不是这样的。
+而我就是做不到！与价值观不一致的东西，没法学会啊！痛苦死了，这个世界到底要不要去适应！:scream: :scream:
 
 ## 2017.10. The spirit is willing but the flesh is weak.
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
