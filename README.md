@@ -1,4 +1,4 @@
-## 工作照出炉了，这个发型 :weep: :weep:
+## 2018.01.工作照出炉了，这个发型 :weep: :weep:
 
 ![image](https://github.com/tsing1129/YY/blob/master/YUE_0661.jpg?raw=true)
 
