@@ -1,3 +1,9 @@
+#工作照出炉了，这个发型！#
+
+The spirit is willing but the flesh is weak.
+
+![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
+
 
 # About the bachelor thesis under [Yiqing](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)'s supervision 
 # 关于在[余译青](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm)指导下的本科毕业论文
