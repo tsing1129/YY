@@ -22,7 +22,7 @@
 ![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
 
 
-# About the bachelor thesis under [my](http://isbf.sysu.edu.cn/cn/szll/szll01/szll01c/4413.htm) supervision 
+# About the bachelor thesis under my supervision 
 
 ## Some instructions 
 
