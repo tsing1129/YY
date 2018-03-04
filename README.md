@@ -1,7 +1,7 @@
 ## Winterferien 2018
 - [x] festlegen:  Ch. 6 一致？Ch. 8团体压力？-->propose hypo ：**现实中的信息-->intersubjective perception** 
-- [ ] 社科Antrag **26.2.gedruckter Antrag abgeben **
-- [ ] Goethe Zertifikat dabei oder nicht?? _** Shanghai: 19. Apr., 11.Jul.; Nanjing wahrscheinlich Apr.; Hongkong: 30.Jun., Anmeldung 9.Jun.**_
+- [x] 社科Antrag **26.2.gedruckter Antrag abgeben **
+- [ ] Goethe Zertifikat dabei oder nicht?? ** Shanghai: 11.Jul.; Hongkong: 30.Jun., Anmeldung 9.Jun.**
 - [ ] Jingwens Masterarbeit betreuen
 - [ ] Supply chain management case study!
 - [ ] Magenspiegel?
