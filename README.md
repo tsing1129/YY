@@ -1,14 +1,10 @@
 ## Sommersemester 18
 - [ ] OSS conflict paper bearbeiten
-- [ ] ECE paper schreiben, Abgabe: **2. Mai. ICIS/ 15.Jun. HICSS**
+- [ ] ECE paper schreiben, Abgabetermin: **2. Mai. ICIS/ 15.Jun. HICSS**
 - [ ] OB workshop Thmen ausgeben
 - [ ] Goethe Zertifikat dabei oder nicht?? ** Shanghai: 11.Jul.; Hongkong: 30.Jun., Anmeldung 9.Jun.**
 - [ ] Supply chain management case study!
 - [ ] Magenspiegel?
-
-## 2018.01.工作照出炉了，这个发型 :weep: :weep:
-
-![image](https://github.com/tsing1129/YY/blob/master/YUE_0661.jpg?raw=true)
 
 ## Who will catch me wherever I fall? :yum: :yum:
 
