@@ -2,7 +2,7 @@
 - [ ] OSS conflict paper bearbeiten
 - [ ] ECE paper schreiben, Abgabetermin: **2. Mai. ICIS/ 15.Jun. HICSS**
 - [ ] OB workshop Themen ausgeben
-- [ ] Goethe Zertifikat dabei oder nicht?? ** Shanghai: 11.Jul.; Hongkong: 30.Jun., Anmeldung 9.Jun.**
+- [ ] Goethe Test dabei oder nicht?? ** Shanghai: 11.Jul.; Hongkong: 30.Jun., Anmeldung 9.Jun.**
 - [ ] Supply chain management case study!
 - [ ] Magenspiegel?
 
