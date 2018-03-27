@@ -16,7 +16,7 @@
 而我就是做不到！与价值观不一致的东西，没法学会啊！痛苦死了，这个世界到底要不要去适应！:scream: :scream:
 
 ## 2017.10. The spirit is willing but the flesh is weak.
-![Image](https://github.com/tsing1129/YY/blob/master/20171005_131045.jpg?raw=true)
+![Image](https://)
 
 
 # About the bachelor thesis under my supervision 
