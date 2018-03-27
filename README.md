@@ -1,5 +1,6 @@
 ## Sommersemester 18
 - [ ] OSS conflict paper bearbeiten
+- [ ] PLS in marketing paper bearbeiten (mit Lan)
 - [ ] ECE paper schreiben, Abgabetermin: **2. Mai. ICIS/ 15.Jun. HICSS**
 - [ ] OB workshop Themen ausgeben
 - [ ] Goethe Test dabei oder nicht?? ** Shanghai: 11.Jul.; Hongkong: 30.Jun., Anmeldung 9.Jun.**
