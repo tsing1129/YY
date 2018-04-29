@@ -1,7 +1,6 @@
 ## Sommersemester 18
-- [ ] OSS conflict paper bearbeiten
 - [ ] PLS review in marketing paper bearbeiten (mit Lan)
-- [ ] ECE paper schreiben, Abgabetermin: **2. Mai. ICIS/ 15.Jun. HICSS**
+- [ ] ECE paper schreiben, Abgabetermin: **15.Jun. HICSS**
 - [ ] OSS behavioral paper resubmit
 - [ ] cognitive closure paper
 - [ ] OB workshop Themen ausgeben
