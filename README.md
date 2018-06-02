@@ -2,6 +2,7 @@
 - [ ] PLS review in marketing paper bearbeiten (mit Lan)
 - [ ] ECE paper schreiben, Abgabetermin: **15.Jun. HICSS**
 - [ ] cognitive closure paper bei Journal of SYSU einreichen
+- [ ] Thema "cultural economics"
 - [ ] Magenspiegel?
 
 ## Who will catch me wherever I fall? :yum: :yum:
