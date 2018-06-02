@@ -1,11 +1,7 @@
 ## Sommersemester 18
 - [ ] PLS review in marketing paper bearbeiten (mit Lan)
 - [ ] ECE paper schreiben, Abgabetermin: **15.Jun. HICSS**
-- [ ] OSS behavioral paper resubmit
-- [ ] cognitive closure paper
-- [ ] OB workshop Themen ausgeben
-- [ ] Goethe Test dabei oder nicht?? ** Shanghai: 11.Jul.; Hongkong: 30.Jun., Anmeldung 9.Jun.**
-- [ ] Supply chain management case study!
+- [ ] cognitive closure paper bei Journal of SYSU einreichen
 - [ ] Magenspiegel?
 
 ## Who will catch me wherever I fall? :yum: :yum:
